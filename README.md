@@ -1,0 +1,1 @@
+# CapCut-11.8.0-Highlights
